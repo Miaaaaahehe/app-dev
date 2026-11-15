@@ -15,3 +15,8 @@ it combines mystery, friendship, and adventure.
 
 ### My Rating
 9/10
+
+### Why I Recommend This Series
+
+I recommend Stranger Things because it is
+exciting and teaches the importance of friendship.
